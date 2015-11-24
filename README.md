@@ -1,2 +1,6 @@
-apple vs samsung
-offline fight
+
+
+#앱등이 vs 삼엽충
+
+이제 온라인에서 댓글놀이 하지 마세요<br>
+마주보고 싸우세요 ^^
